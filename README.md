@@ -31,6 +31,8 @@ Follow **@CHENNAI_CODER** on Instagram for:
 - Machine Learning
 - Beginner-friendly tech content
 
+👉 [Follow Chennai Coder on Instagram](https://www.instagram.com/chennai_coder/)
+
 ## 🚀 Learning Philosophy
 
 **Learn from scratch.  
